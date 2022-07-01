@@ -1,0 +1,2 @@
+# found
+memory card found
